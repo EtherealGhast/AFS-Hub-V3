@@ -1,1 +1,1 @@
-# Script for the roblox game Anime Fighters
+# The best script for the Roblox game Anime Fighters
